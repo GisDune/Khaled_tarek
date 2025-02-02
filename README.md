@@ -1,2 +1,0 @@
-# Khaled_tarek
-CV
